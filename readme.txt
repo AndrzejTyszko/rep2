@@ -1,0 +1,2 @@
+"Koniec bloku 1:
+
